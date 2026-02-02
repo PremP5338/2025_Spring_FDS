@@ -27,7 +27,7 @@ Zoom Meeting ID for all sessions is 95398689633, with the passcode: 065918, or u
 Room B554 will also be available for the students to congregate for each lecture, with a co-intructor present. 
 
 ### FACULTY AND STAFF: 
-W. Evan Johnson, Ph.D.\
+William Evan Johnson, Ph.D.\
 Email: w.evan.johnson@rutgers.edu\
 Cell Phone: (801) 472-6951
 
